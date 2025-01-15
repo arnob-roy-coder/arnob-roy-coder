@@ -1,5 +1,5 @@
 # 💫 About Me:
-Fullstack Web Developer
+Hi there 👋 I am a 20yr/o fullstack web developer. I am making websites for 4 years now & always had a awesome experience with all clients. 1 complaint I always get is that I always deliver work a lot before the deadline... sorry! I am a fast coder ⚡
 
 
 ## 🌐 Socials:
